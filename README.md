@@ -1,4 +1,5 @@
-‎ ‎ ![image](https://i.pinimg.com/736x/2e/87/87/2e878713d9a34f84faaa628f58bef441.jpg) ‎
+art by @dopeassscaryskull
+‎ ‎ ![image](https://smonriley.carrd.co/assets/images/image06.png?v=ba807a0e) ‎
 
 ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎  ‎‎  ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎  ‎![eyeballs counter on GitHub](https://komarev.com/ghpvc/?username=KlRAW) 
 
